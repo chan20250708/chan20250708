@@ -10,4 +10,4 @@
 
 本专区提供最新的国产精品视频与日韩欧美内容，涵盖热播夜色精品、免费影院与激情日B视频等资源。所有视频都支持高清播放，适配各类设备。每周更新，确保你获得最新的内容，不容错过的精彩体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan20250708 ）</span>
